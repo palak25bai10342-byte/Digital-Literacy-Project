@@ -45,7 +45,7 @@ I wrote professional emails and created a checklist for responsible social media
 
 
 ## 🔐 Task 5 – Cybercrime Awareness  
-I explored a case study on UPI fraud and created a prevention checklist to understand how to stay safe in the digital world.
+I explored a case study on Cyberbullying and created a prevention checklist to understand how to stay safe in the digital world.
 
 
 
